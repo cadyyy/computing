@@ -1,10 +1,8 @@
 # hi🙃
-**some of my favourite things**
-Food and music
+hi im _cady_ , i study in _Dunman High School_ and some things i like doing are _dancing,wushu and listening to music_
 
 
-**some of my hobbies are**
-Dance and wushu
+
 
 
 _**welcome to my boring life**_

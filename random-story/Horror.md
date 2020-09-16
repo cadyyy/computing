@@ -1,4 +1,4 @@
-_The Bracelet_
+*The Bracelet*
 
 
 It all started with that one bracelet. That one bracelet that was passed down generation after generation. Some say we were cursed, but I believed it was more than that. I've witnessed generation after generation getting handed that very important family heirloom, once they turned 18. Some say having that bracelet would curse you for life, but to me, it was like a present being handed to me once I became of age. But what I didn't know was, that sometimes it's better to listen to people. It all started on the day of my 18th birthday.
